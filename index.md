@@ -1,6 +1,6 @@
 # Privacy Policy for Muslim Prayer App
 
-**Last Updated:** [Insert Date25/4/2026]
+**Last Updated:** [Insert Date21/4/2026]
 
 ## 1. Introduction
 
